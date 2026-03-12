@@ -1,6 +1,6 @@
 # ✈️ lly's Dreamliner Hangar
 
-Welcome aboard my digital **B787 Hangar**.
+Welcome aboard my digital **Hangar**.
 
 Aviation enthusiast ✈️  
 Plane spotter 📷  
